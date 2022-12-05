@@ -1,0 +1,1 @@
+# dizideki-k-k-ve-b-y-k-sayiyi-bulma
